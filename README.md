@@ -1,2 +1,3 @@
 # clash-of-clans
 TẠO &amp; QUẢN LÍ SERVER CLASH OF CLANS TRÊN PC
+ĐƯỢC LEAK & FIX BỞI PHUCBABY - DO NOT COPY
